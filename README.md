@@ -2,6 +2,7 @@
 
 go give me gimmicks on my strawpage im hungry also if you dont read all of this then dont be shocked when i do something that i list onto here thanks 
 also i dont like it when people kiss me idc if its pixels who r u
+hi im also a minor. hi im a minorrr minorrr adults stay awayyyy 
 
 <img width="200" height="200" alt="800px-DuckShufflerHRDance" src="https://github.com/user-attachments/assets/29983436-2c54-45ce-a562-62054d2fa388" />
 <img width="200" height="200" alt="HLKSlFsaQAAosnk" src="https://github.com/user-attachments/assets/f94ba05a-b481-475e-bb6c-fe0835804e45" />
