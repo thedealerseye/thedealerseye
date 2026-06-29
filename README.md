@@ -1,14 +1,22 @@
-**hi byi im very mean sometimes and can lash out easily**, i am suspecting some disorders that may be the cause of it so please be patient with me. i dont like when people point out my typos no matter how funny it is , i love my partnersystem theyre so cutie c:  ... i zone out alot sometimes and im veryy tired all the time , i block freely and have strong opinions on things most of the time which will make me be extremely annoying sometimes. please dont use any terms, pronouns, names on me unless we're friends .. i find the "nya so kawaii~~~" jokes annoying as hell. i cant tell tones half of the time so tonetags are needed if you want to be friends with me. i love depth spelunking and i am the ceo of system dealer ... smiles , i also kin dealer alot so you could possibly see some similarity of me and him!! if you cant tell im also a system so once again be patient, i get overwhelmed easily. bright colors are extremely a big no for me so if i hide u on pt then thats why.. ok i think thats all 
-
-go give me gimmicks on my strawpage im hungry also if you dont read all of this then dont be shocked when i do something that i list onto here thanks 
-
-also i dont like it when people kiss me idc if its pixels who r u
-
-hi im also a minor. hi im a minorrr minorrr adults stay awayyyy 
-
-<img width="200" height="200" alt="800px-DuckShufflerHRDance" src="https://github.com/user-attachments/assets/29983436-2c54-45ce-a562-62054d2fa388" />
-<img width="200" height="200" alt="HLKSlFsaQAAosnk" src="https://github.com/user-attachments/assets/f94ba05a-b481-475e-bb6c-fe0835804e45" />
+hello hi my strawpage has semi better info on there, i can get mad easily and im always in pain .. i like ds , toontown , and many more . i can get paranoid veryyy easily so please dont say anything thats paranoia causing. i am very interested in the paranormal and many other things ... im polish wawoawoaw i block people freely and people who make me uncomfortable. i have heavy opinions on things so i will get defensive !!! i love my friends and partner sooo much ...  ya i enjoy being crowned and stuff idk wat else to put ehre
 
 
-dealseye art by theoristdiarist on twt .. smiles :)
+
+
+
+
+<img width="540" height="45" alt="tumblr_751d517df01767a4bec9d6f61f1a307e_8f28df4a_540" src="https://github.com/user-attachments/assets/27d09fc4-2681-4aca-8977-972359b4b843" />
+
+
+
+
+
+adults please dont interact with me, i am a minor and i dont feel comfortable around you ..  sorry 
+
+i like to play games and nap  .   ^.^
+
+<img width="540" height="45" alt="tumblr_751d517df01767a4bec9d6f61f1a307e_8f28df4a_540" src="https://github.com/user-attachments/assets/27d09fc4-2681-4aca-8977-972359b4b843" />
+
+i have a kiss discomfort ( i knoww its pixels but i dont enjoy it. ), if you do kiss me youre getting hidden i dont care how sensitive this is
+oki go send me gimmicks please ...  
 
